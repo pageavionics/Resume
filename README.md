@@ -21,7 +21,7 @@ Chief Engineer for all USSF Electrical, Electronics, COM NAV IDENT Engineering p
 Skills: Strategic Leadership · Multi-displinary Leadership · Project Planning 
 //
 //
-DoD JSF RDT&E Avionics, EW, and Missions Systems Lead
+DoD RDT&E Avionics, EW, and Missions Systems Lead
 Naval Air Warfare Center Weapons Division (NAWCWD) · Full-time
 Nov 2017 - Aug 2019 
 Avionics and Electronic Warfare RDT&E Engineering Lead and V&V Test Director
