@@ -2,14 +2,14 @@
 Resume
 //
 //
-DoD Acquisition Professional | Strike EW Avionics Missions Systems Engineering Management
+DoD Acquisition Professional | EW Avionics Missions Systems Engineering Management
 UNITED STATES DEPARTMENT OF THE NAVY · Full-time
 Jan 2021 - Present
-Joint Strike Fighter Program Executive Office Engineering Leadership 
+Program Executive Office Engineering Leadership 
 Contract Management 
 Development
 PEO Engineering and Test Internal Training and Development Manager
-Joint Strike Fighter Program Executive Office Engineering Leadership Contract Management Development PEO Engineering and Test Internal Training and Development Manager
+Joint Program Executive Office Engineering Leadership Contract Management Development PEO Engineering and Test Internal Training and Development Manager
 Skills: Acquisitions · Government · Military Leadership · Navy · Marines · Spacecraft · Space Systems · Electronic Warfare · Intelligence Analysis · Intelligence · Tactical Operations · SIGINT
 //
 //
